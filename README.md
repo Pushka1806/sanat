@@ -1,1 +1,1 @@
-# sanat
+# sanatoriy
